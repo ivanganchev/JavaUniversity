@@ -1,1 +1,1 @@
-Владо е гей
+Take anything you need.
